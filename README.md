@@ -4,6 +4,9 @@
 As a Sales Coordinator, your job is to coordinate effeciently all online sales practices. This will require diligence, creativity,
 and tons of initiative.
 
+## Number 1 Priority
+SELL SELL SELL
+
 ## Lead Sources
 - Office Call Ins
 - Yelp 
@@ -16,7 +19,6 @@ and tons of initiative.
 - Check all lead sources throughout the day.
 - Try to set appointments with every qualified contact.
 - Follow up with Customers.
-- Check Eric's emails for any leads that decided to go through
 - Assist with any office tasks that are asked of you.
 - Be knowledgable of systems in as many aspects you can think of
 
